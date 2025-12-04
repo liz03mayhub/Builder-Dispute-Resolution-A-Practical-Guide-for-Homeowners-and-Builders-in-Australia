@@ -1,0 +1,2 @@
+# Builder-Dispute-Resolution-A-Practical-Guide-for-Homeowners-and-Builders-in-Australia
+Building a home or undertaking major construction work is one of the biggest financial commitments most Australians will ever make. When everything goes well, the process feels exciting and rewarding. But when problems arise—delays, defects, contract disagreements, or communication breakdowns—tensions can escalate quickly.
